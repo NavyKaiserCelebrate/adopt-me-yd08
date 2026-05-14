@@ -1,4 +1,4 @@
-
+Download Free no-ban king legacy Script for king legacy and experience the ultimate in gameplay enhancement with no clip and god mode. Designed for gamers who demand the best,
 
 
 
